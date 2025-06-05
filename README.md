@@ -36,7 +36,7 @@ https://en.pronouns.page/@parodingle
 
 𝖎𝖓𝖙𝖊𝖗𝖊𝖘𝖙𝖘: 𝖜𝖗𝖎𝖙𝖎𝖓𝖌 • 𝖕𝖍𝖎𝖑𝖔𝖘𝖔𝖕𝖍𝖞 • 𝖕𝖘𝖞𝖈𝖍𝖔𝖑𝖔𝖌𝖞 • 𝖕𝖔𝖑𝖎𝖙𝖎𝖈𝖘 
 
-<img src="https://github.com/user-attachments/assets/a18dbe36-00fd-4bf2-9037-54bb38fe237e" width="50" height="50">
+<img src="https://github.com/user-attachments/assets/6ecd9dca-81b8-4b2a-bf8f-91953753f8ae" width="50" height="50">
 
 𝕴𝖂𝕮: 𝖚𝖓𝖊𝖆𝖘𝖞 𝖍𝖎𝖘𝖙𝖔𝖗𝖞(𝖚𝖓𝖑𝖊𝖘𝖘 𝖕𝖊𝖆𝖈𝖊) • 𝖚𝖓𝖉𝖊𝖗 12 • 𝖔𝖛𝖊𝖗 18
 
