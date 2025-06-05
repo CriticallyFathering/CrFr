@@ -42,8 +42,3 @@ https://en.pronouns.page/@parodingle
 
 ![image](https://github.com/user-attachments/assets/bc0fb2f4-3a38-4c09-a018-5933346d3ff6)
 
-yes, I am forcing myself to like sunday.
-
-no, hate his redeemed version.
-
-dnc my skins, ASK for heavy inspo
