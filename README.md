@@ -11,7 +11,7 @@ https://en.pronouns.page/@parodingle
 
 ### <p align=center>“𝕴𝖒𝖆𝖌𝖎𝖓𝖊 𝖓𝖔𝖙 𝖇𝖊𝖎𝖓𝖌 𝖆𝖇𝖑𝖊 𝖙𝖔 𝖗𝖊𝖆𝖉 𝖙𝖍𝖎𝖘.” - 𝕻𝖆𝖗𝖔𝖉𝖎𝖓𝖌𝖑𝖊</p>
 
-<img src="https://github.com/user-attachments/assets/6f97cbeb-317e-4fde-9dbe-e5626b5db216" width="50" height="50">
+<img src="https://github.com/user-attachments/assets/e2007c79-c456-486d-b7f0-e80ece62e469" width="50" height="50">
 
 <p align=center> "𝕴𝕹𝕿𝕻-𝕬 • 𝖍𝖊/𝖍𝖎𝖒 • 𝕳𝖔𝕯 • 𝖜𝖗𝖎𝖙𝖊𝖗 • 𝖕𝖍𝖎𝖑𝖔𝖘𝖔𝖕𝖍𝖊𝖗" </p>
 
