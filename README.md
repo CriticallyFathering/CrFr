@@ -21,7 +21,7 @@ https://en.pronouns.page/@parodingle
 
 
 
-<img src="https://github.com/user-attachments/assets/38ae09b6-b774-4a13-a6b2-d6078ea3d391" width="125" height="250">
+<img src="https://github.com/user-attachments/assets/fa9f52fc-3af7-4c32-b789-f32aaba23b13" width="200" height="125">
 
 
 
