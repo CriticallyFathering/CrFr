@@ -3,7 +3,7 @@
 
 </div>
 
-![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=677f87)
+![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=7487a6)
 
 # <p align=center> 𝕻𝖗𝖊𝖘𝖎𝖉𝖊𝖓𝖙 𝕻𝖆𝖗𝖔𝖉𝖞 </p>
 
