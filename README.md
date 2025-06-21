@@ -22,7 +22,7 @@ https://rentry.co/paroeee
 ![image](https://github.com/user-attachments/assets/5d63e995-9916-482e-aee7-608c3cbaab3b)
 
 
-<img src="https://github.com/user-attachments/assets/4e7b8314-9a94-445e-8ed0-e8b90fb57132" width="635" height="350">
+<img src="https://64.media.tumblr.com/d4887a335bcb012a390e205e14883506/a038a8e03e9aa60a-18/s2048x3072/bc6acd2731ce98e60cbe2c2d93a12e341459929c.pnj">
 
 ![image](https://github.com/user-attachments/assets/e0a03538-0dfd-4e79-9527-4bc3ce13fc4d)
 
@@ -31,7 +31,7 @@ https://rentry.co/paroeee
 
 
 
-<img src="https://github.com/user-attachments/assets/fa9f52fc-3af7-4c32-b789-f32aaba23b13" width="200" height="125">
+<img src="https://64.media.tumblr.com/6be298ace49b374ddd6f826bb8cd3b07/a038a8e03e9aa60a-ca/s2048x3072/774aee5a4d567ee13be1a9dea4593a46a7e529a6.pnj">
 
 
 
