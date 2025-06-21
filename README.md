@@ -7,7 +7,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=7487a6)
 
-# <p align=center> 𝕻𝖗𝖊𝖘𝖎𝖉𝖊𝖓𝖙 𝕻𝖆𝖗𝖔𝖉𝖞 </p>
+# <p align=center> 𝕻𝖗𝖊𝖘𝖎𝖉𝖊𝖓𝖙 <img src="https://64.media.tumblr.com/21f74c9b4a1034a860d601e16f8336d6/111f5bfaeac63034-68/s640x960/5cbcf0e4eb6db065fa5b468fb08d1079daaff24a.pnj" width="50" height="50"> 𝕻𝖆𝖗𝖔𝖉𝖞 </p>
 
 https://en.pronouns.page/@parodingle
 
@@ -31,7 +31,7 @@ https://rentry.co/paroeee
 
 
 
-<img src="https://64.media.tumblr.com/6be298ace49b374ddd6f826bb8cd3b07/a038a8e03e9aa60a-ca/s2048x3072/774aee5a4d567ee13be1a9dea4593a46a7e529a6.pnj">
+<img src="https://64.media.tumblr.com/51230435358948685cb76b79365eed6a/a038a8e03e9aa60a-fe/s2048x3072/7c07eb5846acce4c4a24aba64fb2bc17ac21f9ad.pnj">
 
 
 
@@ -41,7 +41,7 @@ https://rentry.co/paroeee
 ![image](https://github.com/user-attachments/assets/355e5ebf-fadf-40d6-9743-c6564890c53e)
 
 
-<img src="https://github.com/user-attachments/assets/a0cecd3a-895a-42f6-ab49-f204d2ed4f4f" height="350">
+<img src="https://64.media.tumblr.com/6be298ace49b374ddd6f826bb8cd3b07/a038a8e03e9aa60a-ca/s2048x3072/774aee5a4d567ee13be1a9dea4593a46a7e529a6.pnj">
 
 ![image](https://github.com/user-attachments/assets/eef7d99f-5776-45c3-8ceb-b7896d63a386)
 
