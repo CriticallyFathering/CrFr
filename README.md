@@ -1,5 +1,7 @@
+<div align=center>
+<img src="https://github.com/user-attachments/assets/a132924f-e4c0-4fd6-8f1f-8d7983415e90"
+</div>
 
-![image](https://github.com/user-attachments/assets/a132924f-e4c0-4fd6-8f1f-8d7983415e90)
 
 
 ![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=BE9952)
