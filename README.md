@@ -5,7 +5,7 @@
 ![image](https://github.com/user-attachments/assets/a132924f-e4c0-4fd6-8f1f-8d7983415e90)
 
 
-![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=7487a6)
+![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=BE9952)
 
 # <p align=center> 𝕻𝖗𝖊𝖘𝖎𝖉𝖊𝖓𝖙 <img src="https://64.media.tumblr.com/21f74c9b4a1034a860d601e16f8336d6/111f5bfaeac63034-68/s640x960/5cbcf0e4eb6db065fa5b468fb08d1079daaff24a.pnj" width="50" height="50"> 𝕻𝖆𝖗𝖔𝖉𝖞 </p>
 
