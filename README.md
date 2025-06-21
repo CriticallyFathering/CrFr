@@ -1,5 +1,5 @@
 <div align=center>
-<img src="https://www.tumblr.com/rmstitanics/775669888273596416/theme-space-made-from-resources-found-on"
+<img src="https://64.media.tumblr.com/c58713ccb5d38593e120552f20fd52ac/9c9a62d9362e366e-b1/s2048x3072/8b7a911c94ad9100a89c60ccb61c1db0196e1f7e.pnj"
 </div>
 
 ![image](https://github.com/user-attachments/assets/a132924f-e4c0-4fd6-8f1f-8d7983415e90)
