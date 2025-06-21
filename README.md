@@ -1,6 +1,3 @@
-<div align=center>
-<img src="https://64.media.tumblr.com/44f0dd13780c1d27f4736e7e72e349af/9f951dbc2d50a535-28/s2048x3072/c84b905e3f37237cf1cc6883f20965fb55c2ff43.pnj"
-</div>
 
 ![image](https://github.com/user-attachments/assets/a132924f-e4c0-4fd6-8f1f-8d7983415e90)
 
@@ -59,5 +56,5 @@ https://rentry.co/paroeee
 ![image](https://github.com/user-attachments/assets/9135b982-3df1-4438-9d87-706c1ffe3514)
 
 
-![image](https://64.media.tumblr.com/0cda05e0a131c7e1277b31fd6c46d8e8/9f951dbc2d50a535-0d/s2048x3072/a5f07557793976adb0ca320d1589a8d8c07bc577.pnj)
+
 
