@@ -12,6 +12,8 @@ https://en.pronouns.page/@parodingle
 
 https://rentry.co/paroeee
 
+https://www.tumblr.com/everyonessweetheart?source=share
+
 ### <p align=center>“𝕴𝖒𝖆𝖌𝖎𝖓𝖊 𝖓𝖔𝖙 𝖇𝖊𝖎𝖓𝖌 𝖆𝖇𝖑𝖊 𝖙𝖔 𝖗𝖊𝖆𝖉 𝖙𝖍𝖎𝖘.” - 𝕻𝖆𝖗𝖔𝖉𝖎𝖓𝖌𝖑𝖊</p>
 
 <img src="https://github.com/user-attachments/assets/e2007c79-c456-486d-b7f0-e80ece62e469" width="50" height="50">
