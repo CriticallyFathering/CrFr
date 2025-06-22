@@ -6,7 +6,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=BE9952)
 
-# <p align=center> 𝕻𝖗𝖊𝖘𝖎𝖉𝖊𝖓𝖙 <img src="https://64.media.tumblr.com/21f74c9b4a1034a860d601e16f8336d6/111f5bfaeac63034-68/s640x960/5cbcf0e4eb6db065fa5b468fb08d1079daaff24a.pnj" width="50" height="50"> 𝕻𝖆𝖗𝖔𝖉𝖞 </p>
+# <p align=center> 𝕻𝖗𝖊𝖘𝖎𝖉𝖊𝖓𝖙 𝕻𝖆𝖗𝖔𝖉𝖞 </p>
 
 https://en.pronouns.page/@parodingle
 
@@ -23,7 +23,7 @@ https://www.tumblr.com/everyonessweetheart?source=share
 ![image](https://github.com/user-attachments/assets/5d63e995-9916-482e-aee7-608c3cbaab3b)
 
 
-<img src="https://64.media.tumblr.com/d4887a335bcb012a390e205e14883506/a038a8e03e9aa60a-18/s2048x3072/bc6acd2731ce98e60cbe2c2d93a12e341459929c.pnj">
+<img src="https://github.com/user-attachments/assets/39f81928-3a36-4b01-a89c-4e6d14e0b7e1">
 
 ![image](https://github.com/user-attachments/assets/e0a03538-0dfd-4e79-9527-4bc3ce13fc4d)
 
@@ -32,7 +32,7 @@ https://www.tumblr.com/everyonessweetheart?source=share
 
 
 
-<img src="https://64.media.tumblr.com/51230435358948685cb76b79365eed6a/a038a8e03e9aa60a-fe/s2048x3072/7c07eb5846acce4c4a24aba64fb2bc17ac21f9ad.pnj">
+<img src="k">
 
 
 
@@ -42,7 +42,7 @@ https://www.tumblr.com/everyonessweetheart?source=share
 ![image](https://github.com/user-attachments/assets/355e5ebf-fadf-40d6-9743-c6564890c53e)
 
 
-<img src="https://64.media.tumblr.com/6be298ace49b374ddd6f826bb8cd3b07/a038a8e03e9aa60a-ca/s2048x3072/774aee5a4d567ee13be1a9dea4593a46a7e529a6.pnj">
+<img src="https://github.com/user-attachments/assets/d06e0245-3eb0-4e52-b4c5-f7c037fb60d1">
 
 ![image](https://github.com/user-attachments/assets/eef7d99f-5776-45c3-8ceb-b7896d63a386)
 
