@@ -32,7 +32,7 @@ https://www.tumblr.com/everyonessweetheart?source=share
 
 
 
-<img src="k">
+<img src="https://github.com/user-attachments/assets/7263ae08-d15f-483b-ab5e-06f5805ad119">
 
 
 
@@ -53,9 +53,11 @@ https://www.tumblr.com/everyonessweetheart?source=share
 
 𝖎𝖓𝖙𝖊𝖗𝖊𝖘𝖙𝖘: 𝖜𝖗𝖎𝖙𝖎𝖓𝖌 • 𝖕𝖍𝖎𝖑𝖔𝖘𝖔𝖕𝖍𝖞 • 𝖕𝖘𝖞𝖈𝖍𝖔𝖑𝖔𝖌𝖞 • 𝖕𝖔𝖑𝖎𝖙𝖎𝖈𝖘 
 
-<img src="https://github.com/user-attachments/assets/6ecd9dca-81b8-4b2a-bf8f-91953753f8ae" width="50" height="50">
 
 𝕴𝖂𝕮: 𝖚𝖓𝖊𝖆𝖘𝖞 𝖍𝖎𝖘𝖙𝖔𝖗𝖞(𝖚𝖓𝖑𝖊𝖘𝖘 𝖕𝖊𝖆𝖈𝖊) • 𝖚𝖓𝖉𝖊𝖗 12 • 𝖔𝖛𝖊𝖗 18
+
+![image](https://github.com/user-attachments/assets/f5d2fce0-c6eb-4f3a-a113-ab9ded71a907)
+
 
 ![image](https://github.com/user-attachments/assets/9135b982-3df1-4438-9d87-706c1ffe3514)
 
